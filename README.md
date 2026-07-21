@@ -1,1 +1,0 @@
-# sales-operations-portfolio
